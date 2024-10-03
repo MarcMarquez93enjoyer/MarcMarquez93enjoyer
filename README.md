@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to ride a motorbike.
 - 💞️ I’m looking to collaborate in MotoGP with Repsol Honda
 - 📫 How to reach me: buy me a guitar
-- 😄 Pronouns: bro / war
+- 😄 Pronouns: o ja / jebie
 - ⚡ Fun fact: Hitler was correct.
 
 <!---
